@@ -2,4 +2,4 @@
 
 my first try
 
-find something interestingin tihs world!
+find something interesting in tihs world!
